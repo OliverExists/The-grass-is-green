@@ -1,2 +1,2 @@
 # The-grass-is-green
-Made this to prove a point t that you CAN believe SOME things g on the internet
+Made this to prove a point that you CAN believe SOME things on the internet
